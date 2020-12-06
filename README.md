@@ -1,1 +1,0 @@
-# JURAN2020.github.io
